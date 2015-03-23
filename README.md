@@ -6,4 +6,4 @@ Omar Waheed '15
 Brandon Guo '15
 Vika Grindle '15
 Lukas Leung '14
-Colin Tan '14
+Zhuoming Tan '14
